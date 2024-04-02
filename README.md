@@ -19,7 +19,8 @@ enjoyable.
 * Experience in many different fields and industries outside of coding
 * Ableton Live
 * Lateral thinking<br />
-more to follow .....
+<br /> 
+# *More to follow* .....
 
 
 
